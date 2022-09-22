@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MrJoyse.github.io/rsschool-cv/
